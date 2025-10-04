@@ -69,7 +69,7 @@ Video Editing • Graphic Design • Podcast Hosting • Article Writing (Publis
 
 ## 💬 Let’s Connect
 
-📧 **Email:** malikmohzinzahid6@gmail.com  
+📧 **Email:** mohazinzahid6@gmail.com  
 🌐 **LinkedIn:** [https://www.linkedin.com/in/mohazin-zahid-111518384/](#)  
 📍 **Location:** Haripur, Pakistan  
 
